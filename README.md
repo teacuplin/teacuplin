@@ -14,3 +14,4 @@
 <p align="center">
   <img src="https://readme-typing-svg.demolab.com?
   <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=28&duration=3000&pause=1000&color=FF9ECF&center=true&vCenter=true&width=600&lines=THANKS+FOR+THE+SUPPORT!">
+𝘰𝘯 • 𝘩𝘪𝘵𝘢𝘶𝘴 • 𝘢𝘨𝘢𝘪𝘯
